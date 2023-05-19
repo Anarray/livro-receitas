@@ -1,6 +1,6 @@
 **Ovos Frescurentos Mexidos**
 Tempo médio de Preparo 5 minutos
-<img align="center" src="https://cdn0.tudoreceitas.com/pt/posts/8/4/2/ovo_mexido_sem_oleo_3248_600.webp"
+<img align="center" src="https://cdn0.tudoreceitas.com/pt/posts/8/4/2/ovo_mexido_sem_oleo_3248_600.webp">
 
 
 ***Ingredientes***
